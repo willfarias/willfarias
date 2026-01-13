@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently improving **my English 📖🗣️**
 
-- 📫 How to reach me **williamfariasdev@gmail.com**
+- 📫 How to reach me **williamfariasdev@gmail.com** or <a href="http://www.willfarias.com.br">www.willfarias.com.br</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
